@@ -99,7 +99,7 @@ This interpretable model is well-suited for healthcare applications and sets a s
 
 **Sarvesh Jayant Patil**  
 📫 Email: [sarrveshpatil@gmail.com](mailto:sarrveshpatil@gmail.com)  
-📍 Connect on [LinkedIn](https://www.linkedin.com/in/sarveshpatil) (optional)
+📍 Connect on [LinkedIn](https://www.linkedin.com/in/sarrvesh-patil-/) 
 
 ---
 
